@@ -7,7 +7,7 @@
 
 ---
 **Contact:**
-𝕏 : @TURBOMARKETS
-Telegram : TURBOSMC
-Discord: TURBOSMC
+- 𝕏 : @TURBOMARKETS
+- Telegram : TURBOSMC
+- Discord: TURBOSMC
 ---
